@@ -1,11 +1,5 @@
 [返回目录](Preface.md)
 
-<style>
-    .center_p{
-        align-items: center
-    }
-</style>
-
 <h2 id = "2">一、柏林</h2>
 
 - 时间：2019年8月24日~26日
