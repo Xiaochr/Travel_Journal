@@ -16,14 +16,14 @@
 从曼海姆到法兰机场，晚上飞到雅典，在机场与qhf和zzw汇合，坐房东的车到住处见到马老板。雅典的住处很高档，有声控的AI，开关灯煮咖啡等等叫一声就好，关键费用还不高。
 
 <div align = "center">
-    <img src="greece_images/athens2.jpg" height = 200>
+    <img src="greece_images/athens2.JPG" height = 200>
 </div>
 &nbsp;
 
 房东很热心，帮我们交了外卖，吃雅典特色食物，忘了叫啥名字了，很好吃，但一如既往的分量大吃不下……
 
 <div align = "center">
-    <img src="greece_images/athens1.jpg" height = 200>
+    <img src="greece_images/athens1.JPG" height = 200>
 </div>
 &nbsp;
 
@@ -34,31 +34,31 @@
 四个人坐Uber到**卫城**。在那一带看了**巴台农神庙**、**酒神剧场**、**伊瑞克提翁神庙**，**卫城博物馆**没进去。
 
 <div align = "center">
-    <img src="greece_images/athens3.jpg" height = 200>
-    <img src="greece_images/athens4.jpg" height = 200>
-    <img src="greece_images/athens5.jpg" height = 200>
+    <img src="greece_images/athens3.JPG" height = 200>
+    <img src="greece_images/athens4.JPG" height = 200>
+    <img src="greece_images/athens5.JPG" height = 200>
 </div>
 &nbsp;
 
 中午吃到了大章鱼爪，和我想象的有些不一样，是软软咸咸的。
 
 <div align = "center">
-    <img src="greece_images/athens6.jpg" height = 200>
+    <img src="greece_images/athens6.JPG" height = 200>
 </div>
 &nbsp;
 
 下午去打卡**哈德良拱门**、**奥利匹亚宙斯神庙**，在**国家花园**聊了一下午的八卦（？令人迷惑）。
 
 <div align = "center">
-    <img src="greece_images/athens7.jpg" height = 200>
-    <img src="greece_images/athens8.jpg" height = 200>
+    <img src="greece_images/athens7.JPG" height = 200>
+    <img src="greece_images/athens8.JPG" height = 200>
 </div>
 &nbsp;
 
 之后去**宪法广场**看换岗，仅仅是滑稽，走得甚至没有我们军训整齐？
 
 <div align = "center">
-    <img src="greece_images/athens9.jpg" height = 200>
+    <img src="greece_images/athens9.JPG" height = 200>
 </div>
 &nbsp;
 
@@ -73,64 +73,64 @@
 这次旅行的高潮大概就是在这天吧，圣岛真的是漂亮。自从早上坐公交到OIA后满眼都是美景，话不多说，上图!
 
 <div align = "center">
-    <img src="greece_images/san1.jpg" height = 200>
-    <img src="greece_images/san2.jpg" height = 200>
-    <img src="greece_images/san3.jpg" height = 200>
-    <img src="greece_images/san4.jpg" height = 200>
-    <img src="greece_images/san8.jpg" height = 200>
+    <img src="greece_images/san1.JPG" height = 200>
+    <img src="greece_images/san2.JPG" height = 200>
+    <img src="greece_images/san3.JPG" height = 200>
+    <img src="greece_images/san4.JPG" height = 200>
+    <img src="greece_images/san8.JPG" height = 200>
 </div>
 &nbsp;
 
 还有个人照合照。【龇牙】
 
 <div align = "center">
-    <img src="greece_images/san5.jpg" height = 200>
-    <img src="greece_images/san6.jpg" height = 200>
-    <img src="greece_images/san7.jpg" height = 200>
+    <img src="greece_images/san5.JPG" height = 200>
+    <img src="greece_images/san6.JPG" height = 200>
+    <img src="greece_images/san7.JPG" height = 200>
 </div>
 &nbsp;
 
 用过午餐后走过一段危险的会有山石坠落的小径，就到码头登上豪华游轮，出海去！
 
 <div align = "center">
-    <img src="greece_images/san9.jpg" height = 200>
+    <img src="greece_images/san9.JPG" height = 200>
 </div>
 &nbsp;
 
 我们定的船是价格稍贵些的，但超值得！相比于便宜的船上50来人，我们的船总共不过8名游客，而且船员超nice（也给里给气的）。
 
 <div align = "center">
-    <img src="greece_images/san10.jpg" height = 200>
+    <img src="greece_images/san10.JPG" height = 200>
 </div>
 &nbsp;
 
 出海后就在海上看圣岛周围的风景，海是真的蓝，浪是真的白，原谅我语言的匮乏。
 
 <div align = "center">
-    <img src="greece_images/san11.jpg" height = 200>
-    <img src="greece_images/san12.jpg" height = 200>
-    <img src="greece_images/san13.jpg" height = 200>
+    <img src="greece_images/san11.JPG" height = 200>
+    <img src="greece_images/san12.JPG" height = 200>
+    <img src="greece_images/san13.JPG" height = 200>
 </div>
 &nbsp;
 
 总共有3个可以下船游泳的点，替没带泳衣的zzw小姐姐感到可惜hhh 从第一个游泳点上来后一个船员大哥就喊我“Chinese Philps”，从此看我的眼神都怪怪的……
 
 <div align = "center">
-    <img src="greece_images/san15.jpg" height = 200>
+    <img src="greece_images/san15.JPG" height = 200>
 </div>
 &nbsp;
 
 不会水的马老板也穿着全套救生装备下海扑腾。有时候漂太远了要qhf和我把他拽到船边哈哈哈！
 
 <div align = "center">
-    <img src="greece_images/san16.jpg" height = 200>
+    <img src="greece_images/san16.JPG" height = 200>
 </div>
 &nbsp;
 
 有个游泳点可以潜水，当然只有简陋的潜水泳镜，没有氧气瓶，只能稍微下潜一些，否则水压太高受不了。饶是如此，近距离接触鱼群的感觉也特别棒，一群小鱼在你身旁倏尔闪现，时而凝然不动，仿佛海底仙境。（此处本应有视频）
 
 <div align = "center">
-    <img src="greece_images/san14.jpg" height = 200>
+    <img src="greece_images/san14.JPG" height = 200>
 </div>
 &nbsp;
 
@@ -139,14 +139,14 @@
 晚餐是船上船员现烤的鸡排羊排和其他食物自助，那个怪大叔还帮我切鸡排，还超给地要喂我吃，我拗不过只好吃了，大家都富有深意地笑了【捂脸】
 
 <div align = "center">
-    <img src="greece_images/san17.jpg" height = 200>
+    <img src="greece_images/san17.JPG" height = 200>
 </div>
 &nbsp;
 
 傍晚几十艘船只一齐开向观落日点，在夕阳下形成一幅绝美的剪影，也预示着圣岛一天快乐之旅的终章。
 
 <div align = "center">
-    <img src="greece_images/san18.jpg" height = 200>
+    <img src="greece_images/san18.JPG" height = 200>
 </div>
 &nbsp;
 
@@ -159,9 +159,9 @@
 附上马老板骚气彩蛋：
 
 <div align = "center">
-    <img src="greece_images/san19.jpg" height = 200>
-    <img src="greece_images/san20.jpg" height = 200>
-    <img src="greece_images/san21.jpg" height = 200>
+    <img src="greece_images/san19.JPG" height = 200>
+    <img src="greece_images/san20.JPG" height = 200>
+    <img src="greece_images/san21.JPG" height = 200>
 </div>
 &nbsp;
 
