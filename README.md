@@ -8,3 +8,4 @@ Places achieved:
 - Greece: Athens, Santorini
 - Norway: Oslo, Myrdal, Flam, Voss
 - Czech: Praha, Cesky Krumlov
+- Switzerland: Geneva, Luzern, Engelberg
