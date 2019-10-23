@@ -16,7 +16,7 @@
 具体时间我也忘了，大概是**7:50**左右成功搭上火车。第一次在德国坐火车，感觉车位置空间挺大，挺好，但初到异国他乡还是感觉很紧张。
 
 <div align = "center">
-    <img src="berlin_images/berlin1.jpg" height = 200>
+    <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin1.jpg" height = 200>
 </div>
 &nbsp;
 
@@ -31,15 +31,15 @@
 大约10:00与马老板在法兰汇合！去柏林5个多小时的旅途中还有些轶事，一是刚开始不知道怎么看哪些座位是被预订的哪些是free的，导致**被人赶走**好几次，贼尴尬；二是同车厢德国青年们喝酒嗨皮，大喊大笑，两个妹子甚至热情地邀请马老板和我**一起喝酒**快活，被马老板无情拒绝hhh
 
 <div align = "center">
-    <img src="berlin_images/berlin2.jpg" height = 200>
+    <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin2.jpg" height = 200>
 </div>
 &nbsp;
 
 大概**下午四点**到达柏林，花了点时间弄清楚该在哪买当地交通票（事实证明一次之后就很熟练了，以后的旅行都不需要晕头转向）。我们住的酒店在查理检查站附近，于是安顿之后就先去了**查理检查站**，一路经过教堂、音乐厅（具体名字我忘了2333），在**法国大教堂**旁边找了家餐馆吃到了特色的**猪肘、香肠、肉饼**，喝了德国啤酒，舒服。
 
 <div align = "center">
-    <img src="berlin_images/berlin3.JPG" height = 200>
-    <img src="berlin_images/berlin4.JPG" height = 200>
+    <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin3.JPG" height = 200>
+    <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin4.JPG" height = 200>
 </div>
 &nbsp;
 
