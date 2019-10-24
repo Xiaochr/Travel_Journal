@@ -18,6 +18,8 @@
 <div align = "center">
     <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin1.jpg" height = 200>
 </div>
+<img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin1.jpg" height = 200>
+<img src="berlin_images/berlin1.jpg" height = 200>
 &nbsp;
 
 约半个小时后达到**曼海姆火车站**，把行李放到离车站五分钟路程的住处，稍微整一下行李，就去赶大概**9:30**去**柏林**的火车咯。
@@ -39,7 +41,7 @@
 
 <div align = "center">
     <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin3.JPG" height = 200>
-    <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin4.JPG" height = 200>
+    <img src="https://github.com/Xiaochr/Travel_Journal/blob/master/berlin_images/berlin4.JPG" height = 200>
 </div>
 &nbsp;
 
