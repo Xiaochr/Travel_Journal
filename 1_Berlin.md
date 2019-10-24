@@ -17,14 +17,19 @@
 
 <div align = "center">
     <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin1.jpg" height = 200>
+    <img src="https://s2.ax1x.com/2019/10/24/KN1ovR.md.png" height = 200>
 </div>
 <img src="https://xiaochr.github.io/Travel_Journal/berlin_images/berlin1.jpg" height = 200>
-<img src="berlin_images/berlin1.jpg" height = 200>
+<img src="https://s2.ax1x.com/2019/10/24/KN1ovR.md.png" height = 200>
 &nbsp;
 
 约半个小时后达到**曼海姆火车站**，把行李放到离车站五分钟路程的住处，稍微整一下行李，就去赶大概**9:30**去**柏林**的火车咯。
 
+![11](berlin_images/berlin1.jpg)
+
 在等车的过程中最大的发现就是德国的鸽子不怕人。它们就跟中国的流浪猫流浪狗似的，不惹人也没人睬它们，悠闲踱步，啄食地上的面包碎屑，时而扑棱棱来个俯冲，俨然车站之主。
+
+![12](https://xiaochr.github.io/Travel_Journal/berlin_images/berlin1.jpg)
 
 这里提一句，**德铁通票**真的很方便，虽然在德国买火车票不麻烦，但对于初到德国的我，是通票让我能够在这么极限的时间里从法兰到曼海姆再去柏林的。
 
