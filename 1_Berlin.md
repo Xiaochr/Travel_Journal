@@ -20,7 +20,7 @@
 </div>
 &nbsp;
 
-![11](berlin_images/berlin1.jpg){:height = "200px"}
+![1](berlin_images/berlin1.jpg){:height="200px"}
 
 约半个小时后达到**曼海姆火车站**，把行李放到离车站五分钟路程的住处，稍微整一下行李，就去赶大概**9:30**去**柏林**的火车咯。
 
