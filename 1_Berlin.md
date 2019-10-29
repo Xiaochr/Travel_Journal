@@ -15,7 +15,7 @@
 
 具体时间我也忘了，大概是**7:50**左右成功搭上火车。第一次在德国坐火车，感觉车位置空间挺大，挺好，但初到异国他乡还是感觉很紧张。
 
-![1](berlin_images/berlin1.jpg){:height="200px" align="center"}
+![1](berlin_images/berlin1.jpg){:height="300px" align="middle"}
 
 约半个小时后达到**曼海姆火车站**，把行李放到离车站五分钟路程的住处，稍微整一下行李，就去赶大概**9:30**去**柏林**的火车咯。
 
@@ -27,63 +27,63 @@
 
 大约10:00与马老板在法兰汇合！去柏林5个多小时的旅途中还有些轶事，一是刚开始不知道怎么看哪些座位是被预订的哪些是free的，导致**被人赶走**好几次，贼尴尬；二是同车厢德国青年们喝酒嗨皮，大喊大笑，两个妹子甚至热情地邀请马老板和我**一起喝酒**快活，被马老板无情拒绝hhh
 
-![1](berlin_images/berlin2.jpg){:height="200px"}
+![1](berlin_images/berlin2.jpg){:height="300px"}
 
 大概**下午四点**到达柏林，花了点时间弄清楚该在哪买当地交通票（事实证明一次之后就很熟练了，以后的旅行都不需要晕头转向）。我们住的酒店在查理检查站附近，于是安顿之后就先去了**查理检查站**，一路经过教堂、音乐厅（具体名字我忘了2333），在**法国大教堂**旁边找了家餐馆吃到了特色的**猪肘、香肠、肉饼**，喝了德国啤酒，舒服。
 
-![1](berlin_images/berlin3.JPG){:height="200px"}
-![1](berlin_images/berlin4.JPG){:height="200px"}
+![1](berlin_images/berlin3.JPG){:height="300px"}
+![1](berlin_images/berlin4.JPG){:height="300px"}
 
 饭后缓缓往**勃兰登堡门**走去，六点多达到已经有很多人等候的音乐会现场，结识了个中国老哥。老哥对音乐挺有了解，相谈甚欢。这次柏爱在勃兰登堡门的露天演奏会是他们的新指挥第一次在公众面前亮相，演奏的是贝九！所以才把刚到德国的我吸引到柏林hhh 这也多亏了曼海姆给力的小伙伴们先探听到消息，点赞！
 
-![1](berlin_images/berlin5.JPG){:height="200px"}
+![1](berlin_images/berlin5.JPG){:height="300px"}
 
 柏爱+贝九，质量听起来就很高，德国人民音乐素养普遍也很高，即使是露天的音乐会，效果也很棒。特别是最后高潮欢乐颂那部分，周围的人们都跟着音乐**激情跟唱**，让人浑身战栗，都要流下泪来。结束后的掌声更是经久不息，就这样我们结束了柏林的第一天旅程。
 
-![1](berlin_images/berlin6.JPG){:height="200px"}
-![1](berlin_images/berlin7.JPG){:height="200px"}
+![1](berlin_images/berlin6.JPG){:height="300px"}
+![1](berlin_images/berlin7.JPG){:height="300px"}
 
 ### 8.25, DAY2：
 
 第二天一大早，沿路去了**波茨坦广场、欧洲被害犹太人纪念碑**。
 
-![1](berlin_images/berlin8.JPG){:height="200px"}
+![1](berlin_images/berlin8.JPG){:height="300px"}
 
 再次经过勃兰登堡门，前一天晚上的音乐会现场还没收拾完，然后到门附近的**德国国会大厦**。
 
-![1](berlin_images/berlin9.JPG){:height="200px"}
+![1](berlin_images/berlin9.JPG){:height="300px"}
 
 逛完国会大厦就乘坐公交前往**博物馆岛**。之前买好了**博物馆通票**，所以岛上的博物馆可以随便逛。一开始我们没找到佩加蒙博物馆的入口，便先去了岛最北边的**博得博物馆**。之后晕乎乎终于找到入口的我们进入了**佩加蒙博物馆**，**Ischtar-Tor**和古罗马的那个集市大门是真的赞。
 
-![1](berlin_images/berlin10.JPG){:height="200px"}
+![1](berlin_images/berlin10.JPG){:height="300px"}
 
 之后我们去了位于佩加蒙博物馆旁边的**新博物馆**，里面埃及的文物很有味道，特别是**Nefertiti的半身像**！！真的是神仙颜值，awsl！最后悔的事就是没有买一张她的明信片，以至于我以后去哪都会顺手带一两张明信片。
 
-![1](berlin_images/berlin11.jpg){:height="200px"}
+![1](berlin_images/berlin11.jpg){:height="300px"}
 
 博物馆岛旁还有**柏林大教堂**，可以看到不远处的**柏林电视塔**。柏林比我想象中的要小多了，可以在一天内十分悠闲地走路逛完【捂脸】于是我们在下午两点多吃完午饭后回住处舒舒服服地睡了一个午觉2333
 
-![1](berlin_images/berlin12.JPG){:height="200px"}
+![1](berlin_images/berlin12.JPG){:height="300px"}
 
 下午五点多我们醒了，继续出门溜达，去了**东边画廊**。除了超级出名的**兄弟之吻**，还有其他好多涂鸦都挺好看。
 
-![1](berlin_images/berlin13.JPG){:height="200px"}
-![1](berlin_images/berlin14.JPG){:height="200px"}
-![1](berlin_images/berlin15.JPG){:height="200px"}
+![1](berlin_images/berlin13.JPG){:height="300px"}
+![1](berlin_images/berlin14.JPG){:height="300px"}
+![1](berlin_images/berlin15.JPG){:height="300px"}
 
 然后我们乘车到勃兰登堡门again……从一条好多人在跑步的直道，走了一个世纪，到达**胜利纪念碑**下。
 
-![1](berlin_images/berlin16.JPG){:height="200px"}
+![1](berlin_images/berlin16.JPG){:height="300px"}
 
 天色挺晚的了，九点多我们在酒店附近误入一家牛排店，人均200+RMB，心疼。带血的牛肉吃不太习惯，但服务还不错。（~~你都付那么多钱了服务当然好了啊喂！~~
 
-![1](berlin_images/berlin17.JPG){:height="200px"}
+![1](berlin_images/berlin17.JPG){:height="300px"}
 
 ### 8.26, DAY3：
 
 上午坐火车回曼海姆，柏林之行愉快结束。附上拍的一些柏林熊。
 
-![1](berlin_images/berlin18.jpg){:height="200px"}
+![1](berlin_images/berlin18.jpg){:height="300px"}
 
 ---
 <center>THE END</center>
